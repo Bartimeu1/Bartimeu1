@@ -1,4 +1,4 @@
-### Hi. Have a good day!⚡
+###⚡
 
 <!--
 **Bartimeu1/Bartimeu1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
